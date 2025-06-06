@@ -13,3 +13,4 @@
   ![image](https://files.catbox.moe/448fp8.png)
   
 </div> 
+![ReadMe Card](https://github-readme-stats.vercel.app/api/pin/?username=ritsu-kun&repo=kyukurarin)
