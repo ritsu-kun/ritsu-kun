@@ -1,5 +1,6 @@
+## abt me !
 <div align="center">
- <p> # yahoo! <p>
+  # yahoo! 
   
   ritsu-kun / ritsu-chan / ritsu ! 
   
