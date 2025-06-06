@@ -1,5 +1,5 @@
 <div align="center">
-  #yahoo!
+  # yahoo!
   
   ritsu-kun / ritsu-chan / ritsu ! 
   
