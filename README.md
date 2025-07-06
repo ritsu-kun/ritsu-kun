@@ -10,7 +10,7 @@
 
   <img src=https://files.catbox.moe/oq1tho.gif>⠀⠀ ⠀ ⠀  $\color{#d6d0e5}白い猫だよん～♡$⠀ ⠀⠀ <img src=https://files.catbox.moe/z5ayqw.gif>
   
-  $\color{#d6d0e5}♡games$ ⠀-⠀ umamusume:pretty darby⠀ ;⠀ wuthering wawes⠀ ; ⠀ensemble stars⠀ ;⠀ hello kitty my dream store !
+  $\color{#d6d0e5}♡games$ ⠀-⠀ umamusume:pretty derby⠀ ;⠀ wuthering wawes⠀ ; ⠀ensemble stars⠀ ;⠀ hello kitty my dream store !
   
   $\color{#d6d0e5}♡hobbies$ ⠀-⠀ lern languages ⠀;⠀ wear jsf⠀ ;⠀ drawing ⠀;⠀ cosplay⠀ ; ⠀music 
 
