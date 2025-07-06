@@ -2,7 +2,7 @@
 <div align="center">
   # yahoo! 
   
-  $\color{#ffbfd3}{ritsu-kun / ritsu-chan / ritsu ! 
+  $\color{#ffbfd3}{ritsu-kun / ritsu-chan / ritsu ! }$
   
   he/his ; she/her ; isfp ; jap/ukr/eng/rus
 
