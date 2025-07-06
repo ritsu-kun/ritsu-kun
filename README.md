@@ -16,7 +16,7 @@
 
   $\color{#d6d0e5}♡kinnlist$ - kashiki yuno (milgram) ; haruka sakurai (milgram) ; under kids (tuyu) ; ame-chan (needy girl overdose)
 
-  $\color{#d6d0e5}♡selfships$ - kayano mikoto (milgram) ; hideki satou (oc) ; hideki motosuwa (chobits) ; xiangli yao (wuthering wawes)}$
+  $\color{#d6d0e5}♡selfships$ - kayano mikoto (milgram) ; hideki satou (oc) ; hideki motosuwa (chobits) ; xiangli yao (wuthering wawes)
   
   ![image](https://files.catbox.moe/448fp8.png)
   
