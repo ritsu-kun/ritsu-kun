@@ -4,7 +4,7 @@
   
   $\color{#676389}ritsu-kun / ritsu-chan / ritsu ! $
   
-  $\color{#676389}he/his    ;    she/her ; isfp ; jap/ukr/eng/rus$
+  $\color{#676389}he/his ⠀ ;⠀ she/her ; isfp ; jap/ukr/eng/rus$
 
   $\color{#676389}selfshiper ; catfisher$
   
