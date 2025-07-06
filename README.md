@@ -4,7 +4,7 @@
   
   $\color{#676389}{ritsu-kun / ritsu-chan / ritsu ! }$  $\color{#d6d0e5}(satou⠀ ritsu)$
 
-  <img src="https://file.garden/Zlo7whFY2AfQROME/5677bc49.gif" "width="60" height="60"> <br />
+  <img src="https://file.garden/Zlo7whFY2AfQROME/5677bc49.gif" "width="60" height="60">
   
   $\color{#676389}he/his ⠀ ;⠀ she/her ; ⠀isfp ⠀; ⠀jap/ukr/eng/rus$
 
