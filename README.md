@@ -6,7 +6,7 @@
   
   $\color{#676389}he/his ⠀ ;⠀ she/her ; ⠀isfp ⠀; ⠀jap/ukr/eng/rus$
 
-  $\color{#676389}selfshiper⠀ ; ⠀catfisher ⠀;⠀ have a bf! $
+  $\color{#676389}selfshiper⠀ ; ⠀catfisher ⠀;⠀ have⠀a⠀bf! $
   
   $\color{#d6d0e5}♡games$ - umamusume:pretty darby⠀ ;⠀ wuthering wawes⠀ ; ⠀ensemble stars⠀ ;⠀ hello kitty my dream store !
   
