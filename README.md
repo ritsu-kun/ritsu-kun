@@ -4,9 +4,9 @@
   
   $\color{#676389}ritsu-kun / ritsu-chan / ritsu ! $
   
-  he/his ; she/her ; isfp ; jap/ukr/eng/rus
+  $\color{#676389}he/his ; she/her ; isfp ; jap/ukr/eng/rus$
 
-  selfshiper ; catfisher
+  $\color{#676389}selfshiper ; catfisher$
   
   ♡games - umamusume:pretty darby ; wuthering wawes ; ensemble stars ; hello kitty my dream store !
   
