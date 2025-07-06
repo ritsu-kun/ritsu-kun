@@ -7,6 +7,8 @@
   $\color{#676389}he/his ⠀ ;⠀ she/her ; ⠀isfp ⠀; ⠀jap/ukr/eng/rus$
 
   $\color{#676389}selfshiper⠀ ; ⠀catfisher ⠀;⠀ HAVE ⠀A⠀ BF⠀! $
+
+  $\color{#d6d0e5}白い猫だよん～♡$
   
   $\color{#d6d0e5}♡games$ - umamusume:pretty darby⠀ ;⠀ wuthering wawes⠀ ; ⠀ensemble stars⠀ ;⠀ hello kitty my dream store !
   
@@ -19,5 +21,5 @@
   $\color{#d6d0e5}♡selfships$ - kayano mikoto $\color{#676389}(milgram)$ ⠀; vhideki satou $\color{#676389}(oc)$⠀ ; ⠀hideki motosuwa $\color{#676389}(chobits)$⠀ ; ⠀xiangli yao $\color{#676389}(wuthering wawes)$
   
   ![image](https://files.catbox.moe/448fp8.png)
-  $\color{#d6d0e5}白い猫だよん～$
+  
 </div>
