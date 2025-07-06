@@ -6,13 +6,13 @@
   
   $\color{#676389}he/his ⠀ ;⠀ she/her ; ⠀isfp ⠀; ⠀jap/ukr/eng/rus$
 
-  $\color{#676389}selfshiper⠀ ; ⠀catfisher$
+  $\color{#676389}selfshiper⠀ ; ⠀catfisher ⠀;⠀ have a bf! $
   
   $\color{#d6d0e5}♡games$ - umamusume:pretty darby⠀ ;⠀ wuthering wawes⠀ ; ⠀ensemble stars⠀ ;⠀ hello kitty my dream store !
   
   $\color{#d6d0e5}♡hobbies$ - lern languages ⠀;⠀ wear jsf⠀ ;⠀ drawing ⠀;⠀ cosplay⠀ ; ⠀music 
 
-  $\color{#d6d0e5}♡songs(ᵃˡˡ ʸᵒᵘᵗᵘᵇᵉ)$ - milgram⠀ ; ⠀tuyu ⠀; ⠀needy girl overdose oct⠀ ; ⠀riripi
+  $\color{#d6d0e5}♡songs(all youtube)$ - milgram⠀ ; ⠀tuyu ⠀; ⠀needy girl overdose oct⠀ ; ⠀riripi
 
   $\color{#d6d0e5}♡kinnlist$ - kashiki yuno (milgram) ; haruka sakurai (milgram) ; under kids (tuyu) ; ame-chan (needy girl overdose)
 
