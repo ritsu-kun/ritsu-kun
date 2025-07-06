@@ -8,7 +8,7 @@
 
   $\color{#676389}selfshiper⠀ ; ⠀catfisher ⠀;⠀ HAVE ⠀A⠀ BF⠀! $
 
-  <img src=https://files.catbox.moe/oq1tho.gif>⠀⠀ ⠀ ⠀  $\color{#d6d0e5}白い猫だよん～♡$⠀ ⠀⠀⠀ <img src=https://files.catbox.moe/z5ayqw.gif>
+  <img src=https://files.catbox.moe/oq1tho.gif>⠀⠀ ⠀ ⠀  $\color{#d6d0e5}白い猫だよん～♡$⠀ ⠀⠀ <img src=https://files.catbox.moe/z5ayqw.gif>
   
   $\color{#d6d0e5}♡games$ ⠀-⠀ umamusume:pretty darby⠀ ;⠀ wuthering wawes⠀ ; ⠀ensemble stars⠀ ;⠀ hello kitty my dream store !
   
