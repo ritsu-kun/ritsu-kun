@@ -8,7 +8,7 @@
 
   $\color{#676389}selfshiper⠀ ; ⠀catfisher ⠀;⠀ HAVE ⠀A⠀ BF⠀! $
 
-  <img src=https://www.tumblr.com/tagged/rentry%20gifs?source=share>⠀⠀ ⠀ ⠀  $\color{#d6d0e5}白い猫だよん～♡$⠀ ⠀ ⠀ ⠀ <img src=https://file.garden/Zlo7whFY2AfQROME/5677bc49.gif>
+  <img src=https://files.catbox.moe/oq1tho.gif>⠀⠀ ⠀ ⠀  $\color{#d6d0e5}白い猫だよん～♡$⠀ ⠀ ⠀ ⠀ <img src=https://file.garden/Zlo7whFY2AfQROME/5677bc49.gif>
   
   $\color{#d6d0e5}♡games$ ⠀-⠀ umamusume:pretty darby⠀ ;⠀ wuthering wawes⠀ ; ⠀ensemble stars⠀ ;⠀ hello kitty my dream store !
   
