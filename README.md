@@ -12,7 +12,7 @@
   
   $\color{#d6d0e5}♡hobbies$ - lern languages ⠀;⠀ wear jsf⠀ ;⠀ drawing ⠀;⠀ cosplay⠀ ; ⠀music 
 
-  $\color{#d6d0e5}♡songs(all youtube)$ - milgram⠀ ; ⠀tuyu ⠀; ⠀needy girl overdose oct⠀ ; ⠀riripi
+  $\color{#d6d0e5}♡songs(all ⠀youtube)$ - milgram⠀ ; ⠀tuyu ⠀; ⠀needy girl overdose oct⠀ ; ⠀riripi
 
   $\color{#d6d0e5}♡kinnlist$ - kashiki yuno (milgram) ; haruka sakurai (milgram) ; under kids (tuyu) ; ame-chan (needy girl overdose)
 
