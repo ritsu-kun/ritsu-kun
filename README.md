@@ -2,9 +2,9 @@
 <div align="center">
   # yahoo! 
   
-  $\color{#676389}{ritsu-kun / ritsu-chan / ritsu ! }$ <img src=https://files.catbox.moe/f8z1rn.gif> $\color{#d6d0e5}(satou⠀ ritsu)$
+  $\color{#676389}{ritsu-kun / ritsu-chan / ritsu ! }$  <img src=https://files.catbox.moe/f8z1rn.gif>  $\color{#d6d0e5}(satou⠀ ritsu)$
   
-  $\color{#676389}he/his ⠀ ;⠀ she/her ; ⠀isfp ⠀; ⠀jap/ukr/eng/rus$
+  $\color{#676389}he/his⠀  ;⠀ she/her ; ⠀isfp ⠀; ⠀jap/ukr/eng/rus$
 
   $\color{#676389}selfshiper⠀ ; ⠀catfisher ⠀;⠀ HAVE ⠀A⠀ BF⠀! $
 
