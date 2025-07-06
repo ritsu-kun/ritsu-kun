@@ -2,7 +2,7 @@
 <div align="center">
   # yahoo! 
   
-  $\color{#676389}{ritsu-kun / ritsu-chan / ritsu ! }$ <img src=[https://file.garden/Zlo7whFY2AfQROME/5677bc49.gif](https://files.catbox.moe/f8z1rn.gif)> $\color{#d6d0e5}(satou⠀ ritsu)$
+  $\color{#676389}{ritsu-kun / ritsu-chan / ritsu ! }$ <img src=https://files.catbox.moe/f8z1rn.gif> $\color{#d6d0e5}(satou⠀ ritsu)$
   
   $\color{#676389}he/his ⠀ ;⠀ she/her ; ⠀isfp ⠀; ⠀jap/ukr/eng/rus$
 
