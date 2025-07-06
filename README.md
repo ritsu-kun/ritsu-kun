@@ -14,7 +14,7 @@
   
   $\color{#d6d0e5}♡hobbies$ ⠀-⠀ lern languages ⠀;⠀ wear jsf⠀ ;⠀ drawing ⠀;⠀ cosplay⠀ ; ⠀music 
 
-  $\color{#d6d0e5}♡songs⠀ (all ⠀youtube)$ ⠀- ⠀milgram⠀ ; ⠀tuyu ⠀; ⠀needy girl overdose oct⠀ ; ⠀riripi⠀；⠀vocaloid⠀;⠀j-pop <img src=https://files.catbox.moe/du7k1m.gif>
+  $\color{#d6d0e5}♡songs⠀ (all ⠀youtube)$ ⠀- ⠀milgram⠀ ; ⠀tuyu ⠀; ⠀needy girl overdose oct⠀ ; ⠀riripi⠀；⠀vocaloid⠀;⠀j-pop ⠀<img src=https://files.catbox.moe/du7k1m.gif>
 
   $\color{#d6d0e5}♡kinnlist$ ⠀- ⠀kashiki yuno $\color{#676389}(milgram)$ ⠀; ⠀haruka sakurai $\color{#676389}(milgram)$ ⠀;⠀ under kids $\color{#676389}(tuyu)$ ⠀; ⠀ame-chan $\color{#676389}(needy⠀  girl ⠀ overdose)$
 
