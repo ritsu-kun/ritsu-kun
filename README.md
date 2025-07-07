@@ -25,6 +25,7 @@
   ![image](https://files.catbox.moe/448fp8.png)
 
   links: [umamusume:pretty derby](https://umamusu.wiki/Main_Page)⠀;⠀[wuthering wawes](https://wutheringwaves.kurogames.com/en/main)⠀;⠀[ensemble stars](https://ensemblestars.com/explore/units?id=sp)⠀;⠀[hello kitty my dream store](https://youtu.be/W5aio_ZGnZs?si=j4QWNnovxqtcZ3kB)⠀;⠀
+  
   [my playlist](https://youtube.com/playlist?list=PLblJxRTm4VHHzA_wj1OEmzbfYiMDkXnfE&si=hck46ReWKL0EwFuR)⠀;⠀
   [milgram](https://www.youtube.com/@MilgramOfficial)⠀;⠀[tuyu](https://www.youtube.com/@TUYU_official)⠀;⠀[]()⠀;⠀[]()⠀;⠀[]()⠀;⠀[]()
   
