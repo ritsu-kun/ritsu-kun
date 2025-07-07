@@ -22,6 +22,6 @@
   
   ![image](https://files.catbox.moe/448fp8.png)
 
-links: [my playlist](https://youtube.com/playlist?list=PLblJxRTm4VHHzA_wj1OEmzbfYiMDkXnfE&si=hck46ReWKL0EwFuR)
+links: [umamusume:pretty derby](https://umamusu.wiki/Main_Page)⠀;⠀[my playlist](https://youtube.com/playlist?list=PLblJxRTm4VHHzA_wj1OEmzbfYiMDkXnfE&si=hck46ReWKL0EwFuR)⠀;⠀[]()⠀;⠀[]()⠀;⠀[]()
   
 </div>
