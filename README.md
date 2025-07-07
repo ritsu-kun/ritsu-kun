@@ -16,12 +16,14 @@
 
   $\color{#d6d0e5}♡songs⠀ (all ⠀youtube)$ ⠀- ⠀milgram⠀ ; ⠀tuyu ⠀; ⠀needy girl overdose oct⠀ ; ⠀riripi⠀；⠀vocaloid⠀;⠀j-pop ⠀<img src=https://files.catbox.moe/du7k1m.gif>
 
-  $\color{#d6d0e5}♡kinnlist$ ⠀- ⠀kashiki yuno $\color{#676389}(milgram)$ ⠀; ⠀haruka sakurai $\color{#676389}(milgram)$ ⠀;⠀ under kids $\color{#676389}(tuyu)$ ⠀; ⠀ame-chan $\color{#676389}(needy⠀  girl ⠀ overdose)$
+  $\color{#d6d0e5}♡kinnlist$ ⠀- ⠀kashiki yuno $\color{#676389}(milgram)$ ⠀; ⠀haruka sakurai $\color{#676389}(milgram)$ ⠀;⠀ under kids $\color{#676389}(tuyu)$ ⠀; ⠀ame-chan $\color{#676389}(needy⠀  girl ⠀ overdose)$ ⠀;⠀
+  tori himemiya $\color{#676389}(ensemble⠀stars)$
 
-  $\color{#d6d0e5}♡selfships$ ⠀-⠀⠀hideki satou $\color{#676389}(oc)$⠀ ;⠀⠀zayne $\color{#676389}(love⠀and⠀deepspace)$⠀ ;⠀ kayano mikoto $\color{#676389}(milgram)$ ⠀; ⠀hideki motosuwa $\color{#676389}(chobits)$⠀ ; ⠀xiangli yao $\color{#676389}(wuthering ⠀ wawes)$
+  $\color{#d6d0e5}♡selfships$ ⠀-⠀⠀hideki satou $\color{#676389}(oc)$⠀ ;⠀⠀zayne $\color{#676389}(love⠀and⠀deepspace)$⠀ ;⠀ kayano mikoto $\color{#676389}(milgram)$ ⠀; ⠀hideki motosuwa $\color{#676389}(chobits)$⠀ ; ⠀
+  xiangli yao $\color{#676389}(wuthering ⠀ wawes)$
   
   ![image](https://files.catbox.moe/448fp8.png)
 
-links: [umamusume:pretty derby](https://umamusu.wiki/Main_Page)⠀;⠀[my playlist](https://youtube.com/playlist?list=PLblJxRTm4VHHzA_wj1OEmzbfYiMDkXnfE&si=hck46ReWKL0EwFuR)⠀;⠀[]()⠀;⠀[]()⠀;⠀[]()
+links: [umamusume:pretty derby](https://umamusu.wiki/Main_Page)⠀;⠀[wuthering wawes](https://wutheringwaves.kurogames.com/en/main)⠀;⠀[ensemble stars](https://ensemblestars.com/explore/units?id=sp)⠀;⠀[hello⠀kitty⠀my⠀dream⠀store]()⠀;⠀[my playlist](https://youtube.com/playlist?list=PLblJxRTm4VHHzA_wj1OEmzbfYiMDkXnfE&si=hck46ReWKL0EwFuR)⠀;⠀[]()⠀;⠀[]()⠀;⠀[]()⠀;⠀[]()⠀;⠀[]()⠀;⠀[]()
   
 </div>
