@@ -16,7 +16,7 @@
 
   $\color{#d6d0e5}♡songs⠀ (all ⠀youtube)$ ⠀- ⠀milgram⠀ ; ⠀tuyu ⠀; ⠀needy girl overdose oct⠀ ; ⠀riripi⠀；⠀vocaloid⠀;⠀j-pop ⠀<img src=https://files.catbox.moe/du7k1m.gif>
 
-  $\color{#d6d0e5}♡kinnlist$ ⠀- ⠀kashiki yuno $\color{#676389}(milgram)$ ⠀; ⠀haruka sakurai $\color{#676389}(milgram)$ ⠀;⠀ under kids $\color{#676389}(tuyu)$ ⠀; ⠀ame-chan $\color{#676389}(needy⠀  girl ⠀ overdose)$ ⠀;⠀
+  $\color{#d6d0e5}⠀⠀♡kinnlist$ -⠀kashiki yuno $\color{#676389}(milgram)$ ;⠀haruka sakurai $\color{#676389}(milgram)$ ⠀;⠀ under kids $\color{#676389}(tuyu)$  ;  ame-chan $\color{#676389}(needy⠀  girl ⠀ overdose)$ ;⠀⠀⠀⠀⠀⠀⠀⠀⠀
   tori himemiya $\color{#676389}(ensemble⠀stars)$
 
   $\color{#d6d0e5}♡selfships$ ⠀-⠀⠀hideki satou $\color{#676389}(oc)$⠀ ;⠀⠀zayne $\color{#676389}(love⠀and⠀deepspace)$⠀ ;⠀ kayano mikoto $\color{#676389}(milgram)$ ⠀; ⠀hideki motosuwa $\color{#676389}(chobits)$⠀ ; ⠀
@@ -24,8 +24,7 @@
 
   ![image](https://files.catbox.moe/448fp8.png)
 
-  links: [umamusume:pretty derby](https://umamusu.wiki/Main_Page)⠀;⠀[wuthering wawes](https://wutheringwaves.kurogames.com/en/main)⠀;⠀[ensemble stars](https://ensemblestars.com/explore/units?id=sp)⠀;⠀[hello kitty my dream store](https://youtu.be/W5aio_ZGnZs?si=j4QWNnovxqtcZ3kB)⠀;
-  [my playlist](https://youtube.com/playlist?list=PLblJxRTm4VHHzA_wj1OEmzbfYiMDkXnfE&si=hck46ReWKL0EwFuR)⠀; 
-  [milgram](https://www.youtube.com/@MilgramOfficial)⠀;⠀[tuyu](https://www.youtube.com/@TUYU_official)⠀;⠀[]()⠀;⠀[]()⠀;⠀[]()⠀;⠀[]()
-  
+ ⠀⠀⠀⠀⠀⠀⠀⠀⠀links: [umamusume:pretty derby](https://umamusu.wiki/Main_Page)⠀;⠀[wuthering wawes](https://wutheringwaves.kurogames.com/en/main)⠀;⠀[ensemble stars](https://ensemblestars.com/explore/units?id=sp)⠀;⠀[hello kitty my dream store](https://youtu.be/W5aio_ZGnZs?si=j4QWNnovxqtcZ3kB)⠀; ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀  ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[my playlist](https://youtube.com/playlist?list=PLblJxRTm4VHHzA_wj1OEmzbfYiMDkXnfE&si=hck46ReWKL0EwFuR)⠀;  ⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+ [milgram](https://www.youtube.com/@MilgramOfficial)⠀;⠀[tuyu](https://www.youtube.com/@TUYU_official)⠀;⠀[]()⠀;⠀[]()⠀;⠀[]()⠀;⠀[]()
+
 </div>
