@@ -1,4 +1,4 @@
-## abt me !⠀<img srchttps://files.catbox.moe/lneeto.gif>
+## abt me !⠀<img src=https://files.catbox.moe/lneeto.gif>
 <div align="center">
   # yahoo! 
   
