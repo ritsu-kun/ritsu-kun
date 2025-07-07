@@ -21,7 +21,7 @@
 
   $\color{#d6d0e5}♡selfships$ ⠀-⠀⠀hideki satou $\color{#676389}(oc)$⠀ ;⠀⠀zayne $\color{#676389}(love⠀and⠀deepspace)$⠀ ;⠀ kayano mikoto $\color{#676389}(milgram)$ ⠀; ⠀hideki motosuwa $\color{#676389}(chobits)$⠀ ; ⠀
   xiangli yao $\color{#676389}(wuthering ⠀ wawes)$
-  
+
   ![image](https://files.catbox.moe/448fp8.png)
 
   links: [umamusume:pretty derby](https://umamusu.wiki/Main_Page)⠀;⠀[wuthering wawes](https://wutheringwaves.kurogames.com/en/main)⠀;⠀[ensemble stars](https://ensemblestars.com/explore/units?id=sp)⠀;⠀[hello kitty my dream store](https://youtu.be/W5aio_ZGnZs?si=j4QWNnovxqtcZ3kB)⠀;
