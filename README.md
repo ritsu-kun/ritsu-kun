@@ -24,6 +24,6 @@
   
   ![image](https://files.catbox.moe/448fp8.png)
 
-links: [umamusume:pretty derby](https://umamusu.wiki/Main_Page)⠀;⠀[wuthering wawes](https://wutheringwaves.kurogames.com/en/main)⠀;⠀[ensemble stars](https://ensemblestars.com/explore/units?id=sp)⠀;⠀[hello⠀kitty⠀my⠀dream⠀store]()⠀;⠀[my playlist](https://youtube.com/playlist?list=PLblJxRTm4VHHzA_wj1OEmzbfYiMDkXnfE&si=hck46ReWKL0EwFuR)⠀;⠀[]()⠀;⠀[]()⠀;⠀[]()⠀;⠀[]()⠀;⠀[]()⠀;⠀[]()
+links: [umamusume:pretty derby](https://umamusu.wiki/Main_Page)⠀;⠀[wuthering wawes](https://wutheringwaves.kurogames.com/en/main)⠀;⠀[ensemble stars](https://ensemblestars.com/explore/units?id=sp)⠀;⠀[hello kitty my⠀dream store]()⠀;⠀[my playlist](https://youtube.com/playlist?list=PLblJxRTm4VHHzA_wj1OEmzbfYiMDkXnfE&si=hck46ReWKL0EwFuR)⠀;⠀[]()⠀;⠀[]()⠀;⠀[]()⠀;⠀[]()⠀;⠀[]()⠀;⠀[]()
   
 </div>
