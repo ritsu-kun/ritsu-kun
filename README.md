@@ -1,6 +1,7 @@
 ## abt me !⠀<img src=https://files.catbox.moe/lneeto.gif>
 <div align="center">
-  # yahoo! <p>  ![](https://komarev.com/ghpvc/?username=ritsu-kun&label=views&color=d6d0e5) <p/>
+  # yahoo! 
+  <p>  ![](https://komarev.com/ghpvc/?username=ritsu-kun&label=views&color=d6d0e5) <p/>
 
   $\color{#676389}{ritsu-kun / ritsu-chan / ritsu ! }$⠀ <img src=https://files.catbox.moe/f8z1rn.gif>⠀ $\color{#d6d0e5}(satou⠀ ritsu)$
   
