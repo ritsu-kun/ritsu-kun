@@ -6,7 +6,7 @@
   
   $\color{#676389}he/his/she/her ;$ <img src=https://files.catbox.moe/71ivc8.png><img src=https://files.catbox.moe/7hesvl.png><img src=https://files.catbox.moe/8rgzs9.png><img src=https://files.catbox.moe/dazksk.png><img src=https://files.catbox.moe/0cttlw.png><img src=https://files.catbox.moe/w5t2l0.png> $\color{#676389}; ⠀isfp ⠀; ⠀jap/ukr/eng/rus$
 
-  $\color{#676389}selfshiper⠀ ; ⠀catfisher ⠀;⠀ HAVE ⠀A⠀ BF⠀! ♡  $
+  $\color{#676389}selfshiper⠀ ; ⠀catfisher ♡  $
 
   <img src=https://files.catbox.moe/oq1tho.gif>⠀⠀ ⠀ ⠀  $\color{#d6d0e5}白い猫だよん～♡$⠀ ⠀⠀ <img src=https://files.catbox.moe/z5ayqw.gif>
   
