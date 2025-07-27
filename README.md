@@ -4,7 +4,7 @@
 
   $\color{#676389}{ritsu-kun / ritsu-chan / ritsu ! }$⠀ <img src=https://files.catbox.moe/f8z1rn.gif>⠀ $\color{#d6d0e5}(satou⠀ ritsu)$
   
-  $\color{#676389}he/his/she/her ;$ <img src=https://files.catbox.moe/71ivc8.png><img src=https://files.catbox.moe/7hesvl.png><img src=https://files.catbox.moe/8rgzs9.png><img src=https://files.catbox.moe/dazksk.png><img src=https://files.catbox.moe/0cttlw.png> $\color{#676389}; ⠀isfp ⠀; ⠀jap/ukr/eng/rus$
+  $\color{#676389}he/his/she/her ;$ <img src=https://files.catbox.moe/71ivc8.png><img src=https://files.catbox.moe/7hesvl.png><img src=https://files.catbox.moe/8rgzs9.png><img src=https://files.catbox.moe/dazksk.png><img src=https://files.catbox.moe/vh2jxy.png><img src=https://files.catbox.moe/bi9kew.png> $\color{#676389}; ⠀isfp ⠀; ⠀jap/ukr/eng/rus$
 
   $\color{#676389}selfshiper⠀ ; ⠀catfisher ♡  $
 
