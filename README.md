@@ -14,7 +14,7 @@
   
   $\color{#d6d0e5}♡hobbies$ ⠀-⠀ lern languages ⠀;⠀ wear jirai kei/sabukaru/ryousangata⠀ ;⠀ drawing ⠀;⠀ cosplay⠀ ; ⠀music 
 
-  $\color{#d6d0e5}♡songs⠀ (all ⠀youtube)$ ⠀- ⠀milgram⠀ ; ⠀tuyu ⠀; ⠀needy girl overdose ost⠀ ; ⠀lilipi⠀；⠀vocaloid⠀;⠀j-pop ⠀<img src=https://files.catbox.moe/du7k1m.gif>
+  $\color{#d6d0e5}♡songs⠀ (all ⠀youtube)$ ⠀- ⠀milgram⠀ ; ⠀tuyu ⠀; ⠀needy girl overdose ost⠀ ; ⠀lilipi⠀；⠀vocaloid⠀;⠀j-pop⠀;⠀mzlfff ⠀<img src=https://files.catbox.moe/du7k1m.gif>
 
   $\color{#d6d0e5}⠀♡kinnlist$ -⠀kashiki yuno $\color{#676389}(milgram)$ ;⠀haruka sakurai $\color{#676389}(milgram)$ ; under kids $\color{#676389}(tuyu)$  ;  ame-chan,darkangel,kangel $\color{#676389}(needy⠀  girl ⠀ overdose)$  ;  agatha knife $\color{#676389}(agatha⠀  knife)$ ;  tori himemiya $\color{#676389}(ensemble⠀stars)$
 
